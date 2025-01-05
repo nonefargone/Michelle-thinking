@@ -1,8 +1,8 @@
-ac
+ac current
 
-yd p 
-
-ap c
+y d p     netowrk idea 
+       
+ap c                  
 
 yd e 
 
