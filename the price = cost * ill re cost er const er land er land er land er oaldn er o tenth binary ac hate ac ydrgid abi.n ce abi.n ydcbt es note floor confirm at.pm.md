@@ -1,8 +1,16 @@
+item notice
+
+notice
+
+door   
+
+door akey aturn a id key
+
 yeah ydrgid ac yd 
 
 confirm .m yd ac ac 
                                 
-accordian string  er ui confirm ac 
+accordian string  er ui confirm ac  install
 
 string
       co 
