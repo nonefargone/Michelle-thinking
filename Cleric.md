@@ -1,4 +1,4 @@
-τη dic. adliarlcodcaohs asotnmsastnosntasntnetna tbr tba
+τη ai dic tickets. sin  though adliarlcodcaohs asotnmsastnosntasntnetna tbr tba
 
 ![HD-wallpaper-iranian-girl-beatuy-beautiful-girly-iran-persian](https://github.com/user-attachments/assets/58c268f4-dc24-4af1-8a20-aff992d53f7d)
 
