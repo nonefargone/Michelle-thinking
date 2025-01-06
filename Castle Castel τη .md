@@ -1,20 +1,22 @@
+chti ti  ti ti  cactus gate this that project this  cactus gate this 
+
 move
 
 ![7912784624_3b95751bc8_c-799x445](https://github.com/user-attachments/assets/45162cb4-1a68-4254-9ee3-1ba77255c852)
 
+item correct as cod grouper
 
+sovccer thoiugh ai tenth day time item as item as chart as chart as key as it as chart 
 
-sovccer thoiugh ai tenth day 
+τη chart 
 
-τη
+Castle νειγητ τη θα this    this project as tiem time item chart session chart 
 
-Castle νειγητ τη θα
-
-τη Image
+τη Image itme 
      ![unnamed-1](https://github.com/user-attachments/assets/c20bae0f-4b40-4163-b13d-f00375a1f171)
 
 castle     
-       what    τη     ai sonner
+       what    τη     ai sonner corrupt
            lore 
 
            lore     τη          ai net 
