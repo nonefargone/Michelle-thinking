@@ -8,7 +8,8 @@ frozen
       cell 
 
       to
-        gether 
+        gether <img width="1236" alt="Screenshot 2025-01-05 at 3 46 00 PM" src="https://github.com/user-attachments/assets/701b613f-b581-4c33-bdd6-35516ac6df7e" />
+
 
         to
           find 
