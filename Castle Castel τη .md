@@ -2,10 +2,12 @@
   ![Dragon](https://github.com/user-attachments/assets/510f03ec-7c84-45e4-83f7-529de9851695)
 
 ti cactus 
-ti       end ![0b82dec4c62b88013319b44aed6779cf](https://github.com/user-attachments/assets/afcb85df-b936-44e7-b940-c5fd49c51185)
+ti       end 
+![0b82dec4c62b88013319b44aed6779cf](https://github.com/user-attachments/assets/afcb85df-b936-44e7-b940-c5fd49c51185)
 
 
-end![1000_F_532689351_EefSDer8REoLbvJat6ZQ88rtijzTChcB](https://github.com/user-attachments/assets/1c2d7221-2d2e-446c-84cc-62050fc4bd6a)
+end
+![1000_F_532689351_EefSDer8REoLbvJat6ZQ88rtijzTChcB](https://github.com/user-attachments/assets/1c2d7221-2d2e-446c-84cc-62050fc4bd6a)
 
    ti 
 <img width="1236" alt="Screenshot 2025-01-05 at 3 46 00 PM" src="https://github.com/user-attachments/assets/b703a568-6952-4246-ba66-9866934ff61b" />
