@@ -9,8 +9,27 @@ ti       end
 
 
 end
+
+
 ![1000_F_532689351_EefSDer8REoLbvJat6ZQ88rtijzTChcB](https://github.com/user-attachments/assets/1c2d7221-2d2e-446c-84cc-62050fc4bd6a)
 
+
+then  polar thing your asiagn  thene s dgiopas  pna inpp a impio aiop ip oamipo mapio iop aio pipo ai po 
+ht
+  idea 
+
+  ht
+    idea 
+
+    ht   ema il e  knosa nkon pioainop ainp oinp oainp osinop apino spino aspion  inpoasd ino asd
+    kke
+    ke 
+
+    ithe 
+    ad   ht  
+
+    ht
+    ht 
    ti 
 <img width="1236" alt="Screenshot 2025-01-05 at 3 46 00 PM" src="https://github.com/user-attachments/assets/b703a568-6952-4246-ba66-9866934ff61b" />
 
