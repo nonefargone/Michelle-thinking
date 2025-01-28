@@ -1,3 +1,7 @@
+ed 
+ false 
+ the   tiny 
+
        lore     τη          ai net 
            agian  37              poly 
 
