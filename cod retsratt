@@ -1,0 +1,30 @@
+restart
+
+cod 
+   install 
+
+next 
+
+in 
+  str
+
+do
+    action 
+
+      lo
+        action 
+
+lo
+  next 
+
+lo
+  rstart 
+
+lo
+  nehind 
+
+lo 
+  chart 
+
+lo
+  end 
