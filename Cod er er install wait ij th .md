@@ -1,3 +1,5 @@
+cod restart      ice pranck          thin     cart     sea   hotel        a rb       teh oaihg opas idgoh asd gpaeo popaeoopip 
+
 ![Gadus_morhua_Cod-2b-Atlanterhavsparken-Norway](https://github.com/user-attachments/assets/bb363361-08c3-4519-85d3-d17bcc5d7e20) er 
 
 cid er er phase tick
