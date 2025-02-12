@@ -1,5 +1,8 @@
 forbidden thoth warrior
 
+<img width="257" alt="Screenshot 2025-02-11 at 9 17 24 PM" src="https://github.com/user-attachments/assets/5382a119-8689-4666-a854-4be448465b96" />
+
+
 forbidden though ghost
 
 ![photo-1482348838597-b97cc6c86a88](https://github.com/user-attachments/assets/4c55dfcd-f34a-404c-aa8f-8952e35e1c95)
