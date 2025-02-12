@@ -1,3 +1,5 @@
+forbidden thoth warrior
+
 forbidden though ghost
 
 ![photo-1482348838597-b97cc6c86a88](https://github.com/user-attachments/assets/4c55dfcd-f34a-404c-aa8f-8952e35e1c95)
