@@ -1,3 +1,4 @@
+![1000_F_532689502_gPbqpi44hfYfdMfTRIe2IgLBbZ1pZbJA](https://github.com/user-attachments/assets/3dfe4265-1fdc-4bf0-814e-efc6eb99ef71)
 correct self 📝 Thinking 🔍
 
 🔍 Boatr the  a ietonp naep niotpio naetpi nopi noaetpino aeipntipno aepin otpin oaseip gnopin oasdgi nopasi dg inpoasdginop aginp dsi npoagsdpioinp oek nar;kl ea;kl rkln; aer a
