@@ -1,3 +1,15 @@
+as temple 
+
+as knight 
+
+teen 
+
+anger 
+
+teen
+
+scene
+
 as knight
 
 as tonight
