@@ -1,3 +1,5 @@
+thinking
+
 forbidden
 
 ![argon_the_watcher_by_sirjamesfanciest_dgqjsan-414w](https://github.com/user-attachments/assets/6ce8f11a-4a97-44bf-aaf4-431e4c781cea)
