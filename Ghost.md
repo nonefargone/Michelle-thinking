@@ -1,3 +1,21 @@
+shower
+
+forcast
+
+cost player 
+
+th cost 
+
+th wisdom 
+
+th strength 
+
+th in
+
+th in 
+
+th in 
+
 gu 
 th
 
