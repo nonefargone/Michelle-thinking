@@ -1,3 +1,37 @@
+merge though
+
+ai merge 
+
+ai together 
+
+ai compsnay 
+
+ai shift 
+
+together
+
+shift
+
+cycle
+
+roll
+
+as temple 
+
+as knight 
+
+teen 
+
+anger 
+
+teen
+
+scene
+
+as knight
+
+as tonight
+
 edit oite asiop dg ipoasd iop iopha ihopai hoph ipoa hiopa ioph hiopahi oiho paio hphi opaio hpaop nnonoa ;nocnaononononono
 
 rthe ioasho gdhpoiasdgh asdglasdgas ld  status code id  ioa i inpoasinp o inopt pino ainopseinop apio nsgpio nasp iopi noaopi n in
@@ -17,4 +51,10 @@ ha
 
 
 ha 
-  
+  six
+
+ha
+  tonight 
+
+ha 
+  seen 
