@@ -1,3 +1,21 @@
+merge though
+
+ai merge 
+
+ai together 
+
+ai compsnay 
+
+ai shift 
+
+together
+
+shift
+
+cycle
+
+roll
+
 as temple 
 
 as knight 
